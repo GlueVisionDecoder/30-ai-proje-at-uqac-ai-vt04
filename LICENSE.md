@@ -1,4 +1,4 @@
-# 
+# Principal 30+ AI Projects at UQAC flujo de trabajo. Con procesamiento en tiempo real y visión por computadora — optimizado para el máximo rendimiento.
 
 
 
